@@ -1,6 +1,1 @@
-https://user-images.githubusercontent.com/109317308/190021531-f125c925-091d-408b-94dd-1826cd1d45ae.mov
-
-
-
-
-
+![Author-gif](https://user-images.githubusercontent.com/109317308/190022152-75b46cac-a99f-4d51-8155-c246092cf745.gif)
